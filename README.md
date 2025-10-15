@@ -1,0 +1,2 @@
+# .github
+Freedom and privacy
