@@ -1,4 +1,4 @@
-## Freedom and privacy
+## Social Ecosystem (Freedom and privacy)
 
 <!--
 
